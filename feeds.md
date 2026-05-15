@@ -1,4 +1,12 @@
 
+[Confidence is overrated](https://www.blackbirdspyplane.com/p/confidence-is-overrated)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/14/2026
+
+Plus the power of styling, *that's* how you freak a 1/4 zip, a good seam is like a magic trick & more
+
+
 [Connoisseurs vs. con men](https://www.blackbirdspyplane.com/p/connoisseurs-versus-con-men)
 ---
 
@@ -149,12 +157,4 @@ Techno-optimism is dead, hypersexualized youth is back, and more with Petra Coll
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 3/26/2026
 
 Great waxed-cotton caps and bags, S-tier approach shoes, a based weapon in the war against screencuckery & more
-
-
-[Arrogance & excellence](https://www.blackbirdspyplane.com/p/pusha-t-interview-spyplane-2026)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 3/24/2026
-
-Being evil in your art, rocking cool under-the-radar clothes, not driving a Honda Fit & more with the legend Pusha T
 
