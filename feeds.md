@@ -1,4 +1,12 @@
 
+[How to wear color well: Vehicular Swag Edition](https://www.blackbirdspyplane.com/p/how-to-wear-color-well-vehicular-swag-edition)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/19/2026
+
+Popping color combos to wear right now
+
+
 [Confidence is overrated](https://www.blackbirdspyplane.com/p/confidence-is-overrated)
 ---
 
@@ -149,12 +157,4 @@ Guidance on the J.A.W.S. Interface, plus very dope jeans & more
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 3/31/2026
 
 Techno-optimism is dead, hypersexualized youth is back, and more with Petra Collins the young photographic goat
-
-
-[Is it appropriate to ask your phone the weather?](https://www.blackbirdspyplane.com/p/is-it-appropriate-to-ask-your-phone-the-weather)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 3/26/2026
-
-Great waxed-cotton caps and bags, S-tier approach shoes, a based weapon in the war against screencuckery & more
 
