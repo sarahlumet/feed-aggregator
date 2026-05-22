@@ -1,4 +1,12 @@
 
+[Take the grace-based path](https://www.blackbirdspyplane.com/p/the-grace-based-path)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/21/2026
+
+Plus cool sneakers, lamps, incense tendrils to sniff pon & more unbeatable recon
+
+
 [How to wear color well: Vehicular Swag Edition](https://www.blackbirdspyplane.com/p/how-to-wear-color-well-vehicular-swag-edition)
 ---
 
@@ -149,12 +157,4 @@ Your guide to Gaia-amenable activewear to sweat in (& chill in)
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/2/2026
 
 Guidance on the J.A.W.S. Interface, plus very dope jeans & more
-
-
-[Beauty and horror](https://www.blackbirdspyplane.com/p/petra-collins-interview-2026-star)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 3/31/2026
-
-Techno-optimism is dead, hypersexualized youth is back, and more with Petra Collins the young photographic goat
 
