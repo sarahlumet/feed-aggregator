@@ -1,4 +1,12 @@
 
+[Do you wanna look hot or do you wanna look cool?](https://www.blackbirdspyplane.com/p/looking-hot-vs-looking-cool)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/28/2026
+
+Plus a perfect gift that costs ~nothing, home-enswaggening light switches & more unbeatable recon
+
+
 [Take the grace-based path](https://www.blackbirdspyplane.com/p/the-grace-based-path)
 ---
 
@@ -149,12 +157,4 @@ Patrick Radden Keefe, author and real eater, on his favorite London restaurants 
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/5/2026
 
 Your guide to Gaia-amenable activewear to sweat in (& chill in)
-
-
-[How to not wear cool jackets wrong](https://www.blackbirdspyplane.com/p/how-to-not-wear-cool-jackets-wrong)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/2/2026
-
-Guidance on the J.A.W.S. Interface, plus very dope jeans & more
 
