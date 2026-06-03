@@ -1,4 +1,12 @@
 
+[Why are we addicted to standing in line for treats?](https://www.blackbirdspyplane.com/p/why-we-stand-in-lines-for-treats)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/2/2026
+
+The rise of the QTBAT
+
+
 [Rare vintage report](https://www.blackbirdspyplane.com/p/rare-vintage-report-search-terms-hidden-troves-concorde)
 ---
 
@@ -149,12 +157,4 @@ The slappiest food, shops, drinks, sights, nature trails & more
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/9/2026
 
 Plus a 'xclusie early look at a hot drop, slept-on basics, fun gangster movies & more
-
-
-[Eating good in Money Town](https://www.blackbirdspyplane.com/p/patrick-radden-keefe-interview-london-falling-best-restaurants-and-bookshops)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/7/2026
-
-Patrick Radden Keefe, author and real eater, on his favorite London restaurants and bookstores
 
