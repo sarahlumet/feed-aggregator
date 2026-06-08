@@ -1,4 +1,12 @@
 
+[Hiking-sandal realness](https://www.blackbirdspyplane.com/p/hiking-sandal-realness)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/7/2026
+
+Plus summer-weight button ups, a packable linen suit, non-wack tabi sneakers & more on-demand recon
+
+
 [They say you can’t get in](https://www.blackbirdspyplane.com/p/they-say-you-cant-get-in)
 ---
 
@@ -149,12 +157,4 @@ Suit Report. Plus ghillies and moccasins, cotton anoraks, slouchy shorts, vintag
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/16/2026
 
 Plus linen tees, non-wack-wedding quests, and more unbeatable recon
-
-
-[Spyplane Ultimate BAY AREA Guide](https://www.blackbirdspyplane.com/p/spyplane-ultimate-bay-area-guide)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/14/2026
-
-The slappiest food, shops, drinks, sights, nature trails & more
 
