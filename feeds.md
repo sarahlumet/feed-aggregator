@@ -1,4 +1,12 @@
 
+[Analyze this](https://www.blackbirdspyplane.com/p/analyze-this-against-color-analysis-and-other-code-unlocker-hogwash)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/9/2026
+
+Would-be "code unlockers" deserve extreme skepticism
+
+
 [Hiking-sandal realness](https://www.blackbirdspyplane.com/p/hiking-sandal-realness)
 ---
 
@@ -149,12 +157,4 @@ Plus rare underwear returns comet-like, abundant Cool Clothes intel & more
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/19/2026
 
 Suit Report. Plus ghillies and moccasins, cotton anoraks, slouchy shorts, vintage jewelry and more
-
-
-[We've been overthinking the rain jacket](https://www.blackbirdspyplane.com/p/weve-been-overthinking-the-rain-jacket)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/16/2026
-
-Plus linen tees, non-wack-wedding quests, and more unbeatable recon
 
