@@ -1,4 +1,12 @@
 
+[A plea for justice](https://www.blackbirdspyplane.com/p/a-plea-for-justice)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/11/2026
+
+The worst-dressed famous people and rare sauce lords among them, rare cool tiny-mic-style-advice dudes, rare shirts, and more unbeatable recon
+
+
 [Analyze this](https://www.blackbirdspyplane.com/p/analyze-this-against-color-analysis-and-other-code-unlocker-hogwash)
 ---
 
@@ -149,12 +157,4 @@ Good news from the city's cool maker frontlines
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/23/2026
 
 Plus rare underwear returns comet-like, abundant Cool Clothes intel & more
-
-
-[Your suit needs some slosh](https://www.blackbirdspyplane.com/p/your-suit-needs-some-slosh)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/19/2026
-
-Suit Report. Plus ghillies and moccasins, cotton anoraks, slouchy shorts, vintage jewelry and more
 
