@@ -1,4 +1,12 @@
 
+[How to dress when it's too hot](https://www.blackbirdspyplane.com/p/how-to-dress-well-when-its-too-hot)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/16/2026
+
+Shorts Report & beyond — it’s Spyplane Swelter-Weather Swag Week
+
+
 [A plea for justice](https://www.blackbirdspyplane.com/p/a-plea-for-justice)
 ---
 
@@ -149,12 +157,4 @@ Ornament vs. utility and the definition of Good Design
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/26/2026
 
 Good news from the city's cool maker frontlines
-
-
-[Crimes against yourself](https://www.blackbirdspyplane.com/p/crimes-against-yourself)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/23/2026
-
-Plus rare underwear returns comet-like, abundant Cool Clothes intel & more
 
