@@ -1,4 +1,12 @@
 
+[A/C made us soft](https://www.blackbirdspyplane.com/p/ac-made-us-soft)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/18/2026
+
+Cooling shirts, heatwave headgear, powerful hot-weather mindset changes and more in the finale of our "How to Dress When it's Too Hot" Guide
+
+
 [How to dress when it's too hot](https://www.blackbirdspyplane.com/p/how-to-dress-well-when-its-too-hot)
 ---
 
@@ -149,12 +157,4 @@ The best food, drinks, work & art at Design Week and beyond
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/28/2026
 
 Ornament vs. utility and the definition of Good Design
-
-
-[Don't count L.A. out yet](https://www.blackbirdspyplane.com/p/dont-count-la-out-yet)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/26/2026
-
-Good news from the city's cool maker frontlines
 
