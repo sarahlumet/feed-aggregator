@@ -1,4 +1,12 @@
 
+[Wearing color is a community service](https://www.blackbirdspyplane.com/p/wearing-color-is-a-community-service)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/21/2026
+
+How I'm doing it this summer
+
+
 [A/C made us soft](https://www.blackbirdspyplane.com/p/ac-made-us-soft)
 ---
 
@@ -149,12 +157,4 @@ A Top 5 Most Delightful Shop in the World provides. Plus sick footwear hiding in
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/29/2026
 
 The best food, drinks, work & art at Design Week and beyond
-
-
-[It's just clothes, and the stakes are enormous](https://www.blackbirdspyplane.com/p/its-just-clothes-and-the-stakes-are-enormous)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/28/2026
-
-Ornament vs. utility and the definition of Good Design
 
