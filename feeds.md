@@ -1,4 +1,12 @@
 
+[Does everything in your wardrobe work together?](https://www.blackbirdspyplane.com/p/does-everything-in-your-wardrobe)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/23/2026
+
+Do you even want it to? Plus: the cure for too much dry cleaning, my favorite garment as determined by science & more rare wisdom
+
+
 [Wearing color is a community service](https://www.blackbirdspyplane.com/p/wearing-color-is-a-community-service)
 ---
 
@@ -149,12 +157,4 @@ The endless sauce of waxed cotton, summery knits, vintage woven straw bags & mor
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/30/2026
 
 A Top 5 Most Delightful Shop in the World provides. Plus sick footwear hiding in plain sight, dope new zip hoodies & more
-
-
-[Wonders of Milan - Salone Special City Guide](https://www.blackbirdspyplane.com/p/milan-design-art-food-drink-guide-2026)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 4/29/2026
-
-The best food, drinks, work & art at Design Week and beyond
 
