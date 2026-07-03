@@ -1,4 +1,12 @@
 
+[What the future holds](https://www.blackbirdspyplane.com/p/what-the-future-holds)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/2/2026
+
+Too much heat, on the cool-clothes frontlines and elsewhere. Spyplane Paris Men's Fashion Week SS27 Report
+
+
 [Fortify your mentals](https://www.blackbirdspyplane.com/p/fortify-your-mentals)
 ---
 
@@ -149,12 +157,4 @@ Plus paradoxically sick footwear that sold out instantly but also people are sle
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/5/2026
 
 Plus earth's greatest clothing shop, a secret riverside oasis, and tons of delicious food. One road trip brings it all together
-
-
-[Hard & breezy](https://www.blackbirdspyplane.com/p/hard-and-breezy)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/3/2026
-
-The endless sauce of waxed cotton, summery knits, vintage woven straw bags & more
 
