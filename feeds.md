@@ -1,4 +1,12 @@
 
+[The drink of the summer](https://www.blackbirdspyplane.com/p/the-drink-of-the-summer)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/7/2026
+
+Heatwave-tested
+
+
 [What the future holds](https://www.blackbirdspyplane.com/p/what-the-future-holds)
 ---
 
@@ -149,12 +157,4 @@ Sick walkable Mary Janes, why the best designers are all coming out of Belgium, 
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/7/2026
 
 Plus paradoxically sick footwear that sold out instantly but also people are sleeping on it, a new under-the-radar NYC line & more
-
-
-[Earth's least cynical place](https://www.blackbirdspyplane.com/p/spyplane-road-trip-of-wonders-pnw-2026)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/5/2026
-
-Plus earth's greatest clothing shop, a secret riverside oasis, and tons of delicious food. One road trip brings it all together
 
