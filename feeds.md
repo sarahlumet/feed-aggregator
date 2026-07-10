@@ -1,4 +1,12 @@
 
+[Systems-level swag](https://www.blackbirdspyplane.com/p/systems-level-swag-2026-braun-dieter-rams-collector-bagmaker-london-recon)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/9/2026
+
+Behind closed doors with cool people doing cool things in London
+
+
 [The drink of the summer](https://www.blackbirdspyplane.com/p/the-drink-of-the-summer)
 ---
 
@@ -149,12 +157,4 @@ Your favorite shirt doesn't have a 22 S.P.I. count. Is it garbage?
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/10/2026
 
 Sick walkable Mary Janes, why the best designers are all coming out of Belgium, a great NYC woodworker & more
-
-
-[Rules are cool](https://www.blackbirdspyplane.com/p/rules-are-cool)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/7/2026
-
-Plus paradoxically sick footwear that sold out instantly but also people are sleeping on it, a new under-the-radar NYC line & more
 
