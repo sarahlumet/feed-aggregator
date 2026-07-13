@@ -1,4 +1,12 @@
 
+[Party clothes](https://www.blackbirdspyplane.com/p/party-clothes)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/12/2026
+
+Wedding fit sorted. Plus intel on petite unisex watches, consistently excellent small lines, shoes and accessories spotted on Paris streets & a visit to a rare jewelry atelier
+
+
 [Systems-level swag](https://www.blackbirdspyplane.com/p/systems-level-swag-2026-braun-dieter-rams-collector-bagmaker-london-recon)
 ---
 
@@ -149,12 +157,4 @@ Plus the power of styling, *that's* how you freak a 1/4 zip, a good seam is like
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/12/2026
 
 Your favorite shirt doesn't have a 22 S.P.I. count. Is it garbage?
-
-
-[No baby on board](https://www.blackbirdspyplane.com/p/no-baby-on-board)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/10/2026
-
-Sick walkable Mary Janes, why the best designers are all coming out of Belgium, a great NYC woodworker & more
 
