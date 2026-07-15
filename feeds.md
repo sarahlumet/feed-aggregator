@@ -1,4 +1,12 @@
 
+[Is ambient music evil?](https://www.blackbirdspyplane.com/p/is-ambient-music-evil)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/14/2026
+
+Darkness in the clouds
+
+
 [Party clothes](https://www.blackbirdspyplane.com/p/party-clothes)
 ---
 
@@ -149,12 +157,4 @@ Popping color combos to wear right now
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/14/2026
 
 Plus the power of styling, *that's* how you freak a 1/4 zip, a good seam is like a magic trick & more
-
-
-[Connoisseurs vs. con men](https://www.blackbirdspyplane.com/p/connoisseurs-versus-con-men)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/12/2026
-
-Your favorite shirt doesn't have a 22 S.P.I. count. Is it garbage?
 
