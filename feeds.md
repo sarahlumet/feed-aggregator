@@ -1,4 +1,12 @@
 
+[What your city needs to be truly "up"](https://www.blackbirdspyplane.com/p/what-a-city-needs-to-be-truly-up-antwerp-cool-city-guide)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/16/2026
+
+Robust civic-swag indicators, some of the world's best clothes, & more in our new favorite place: Antwerp
+
+
 [Is ambient music evil?](https://www.blackbirdspyplane.com/p/is-ambient-music-evil)
 ---
 
@@ -149,12 +157,4 @@ Plus cool sneakers, lamps, incense tendrils to sniff pon & more unbeatable recon
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/19/2026
 
 Popping color combos to wear right now
-
-
-[Confidence is overrated](https://www.blackbirdspyplane.com/p/confidence-is-overrated)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/14/2026
-
-Plus the power of styling, *that's* how you freak a 1/4 zip, a good seam is like a magic trick & more
 
