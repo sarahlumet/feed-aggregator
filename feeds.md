@@ -1,4 +1,12 @@
 
+[Your home is a work of art](https://www.blackbirdspyplane.com/p/your-home-is-a-work-of-art)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/21/2026
+
+You, time & entropy are the artists
+
+
 [What your city needs to be truly "up"](https://www.blackbirdspyplane.com/p/what-a-city-needs-to-be-truly-up-antwerp-cool-city-guide)
 ---
 
@@ -149,12 +157,4 @@ Plus a perfect gift that costs ~nothing, home-enswaggening light switches & more
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/21/2026
 
 Plus cool sneakers, lamps, incense tendrils to sniff pon & more unbeatable recon
-
-
-[How to wear color well: Vehicular Swag Edition](https://www.blackbirdspyplane.com/p/how-to-wear-color-well-vehicular-swag-edition)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/19/2026
-
-Popping color combos to wear right now
 
