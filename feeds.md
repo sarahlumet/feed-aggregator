@@ -1,4 +1,12 @@
 
+[Your exoskeleton is showing](https://www.blackbirdspyplane.com/p/your-exoskeleton-is-showing)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/23/2026
+
+New journeys into sauce, plus intel on small-run bags, caps & sandals
+
+
 [Your home is a work of art](https://www.blackbirdspyplane.com/p/your-home-is-a-work-of-art)
 ---
 
@@ -149,12 +157,4 @@ Your favorite clothes are out there waiting for you to find them
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/28/2026
 
 Plus a perfect gift that costs ~nothing, home-enswaggening light switches & more unbeatable recon
-
-
-[Take the grace-based path](https://www.blackbirdspyplane.com/p/the-grace-based-path)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/21/2026
-
-Plus cool sneakers, lamps, incense tendrils to sniff pon & more unbeatable recon
 
