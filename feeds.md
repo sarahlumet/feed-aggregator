@@ -1,4 +1,12 @@
 
+[Nobody's born a minimalist](https://www.blackbirdspyplane.com/p/nobodys-born-a-minimalist)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/26/2026
+
+The joy & humor of surrealism. Plus, a new jewelry crafter, DIY sandal kits, reworked vintage tees & more
+
+
 [Your exoskeleton is showing](https://www.blackbirdspyplane.com/p/your-exoskeleton-is-showing)
 ---
 
@@ -149,12 +157,4 @@ The rise of the QTBAT
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/31/2026
 
 Your favorite clothes are out there waiting for you to find them
-
-
-[Do you wanna look hot or do you wanna look cool?](https://www.blackbirdspyplane.com/p/looking-hot-vs-looking-cool)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/28/2026
-
-Plus a perfect gift that costs ~nothing, home-enswaggening light switches & more unbeatable recon
 
