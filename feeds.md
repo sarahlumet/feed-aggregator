@@ -1,4 +1,12 @@
 
+[Summer Songs Supermix 2026](https://www.blackbirdspyplane.com/p/summer-songs-supermix-2026)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/28/2026
+
+Two and a half hours of eternal joy
+
+
 [Nobody's born a minimalist](https://www.blackbirdspyplane.com/p/nobodys-born-a-minimalist)
 ---
 
@@ -149,12 +157,4 @@ I believe you can. Plus cut-rate archival clothing, new heat from a slapper mecc
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/2/2026
 
 The rise of the QTBAT
-
-
-[Rare vintage report](https://www.blackbirdspyplane.com/p/rare-vintage-report-search-terms-hidden-troves-concorde)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 5/31/2026
-
-Your favorite clothes are out there waiting for you to find them
 
