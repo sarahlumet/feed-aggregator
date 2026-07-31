@@ -1,4 +1,12 @@
 
+[Devour your world](https://www.blackbirdspyplane.com/p/devour-your-world)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 7/30/2026
+
+Graceful style transitions, summerweight knits, great new shoes, and more
+
+
 [Summer Songs Supermix 2026](https://www.blackbirdspyplane.com/p/summer-songs-supermix-2026)
 ---
 
@@ -149,12 +157,4 @@ Plus summer-weight button ups, a packable linen suit, non-wack tabi sneakers & m
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/4/2026
 
 I believe you can. Plus cut-rate archival clothing, new heat from a slapper mecca, tremendous clog game from a gifted chef & more unbeatable recon
-
-
-[Why are we addicted to standing in line for treats?](https://www.blackbirdspyplane.com/p/why-we-stand-in-lines-for-treats)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/2/2026
-
-The rise of the QTBAT
 
