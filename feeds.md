@@ -1,4 +1,12 @@
 
+[Don't trust people who talk about "intention"](https://www.blackbirdspyplane.com/p/dont-trust-people-who-talk-about-intention)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/4/2026
+
+Banned words
+
+
 [Devour your world](https://www.blackbirdspyplane.com/p/devour-your-world)
 ---
 
@@ -149,12 +157,4 @@ Would-be "code unlockers" deserve extreme skepticism
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/7/2026
 
 Plus summer-weight button ups, a packable linen suit, non-wack tabi sneakers & more on-demand recon
-
-
-[They say you can’t get in](https://www.blackbirdspyplane.com/p/they-say-you-cant-get-in)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/4/2026
-
-I believe you can. Plus cut-rate archival clothing, new heat from a slapper mecca, tremendous clog game from a gifted chef & more unbeatable recon
 
