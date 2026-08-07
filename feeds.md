@@ -1,4 +1,12 @@
 
+[Quacky, honking, sublime](https://www.blackbirdspyplane.com/p/quacky-honking-sublime)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/6/2026
+
+A Top 5 Spyplane Jacket drops tomorrow, actually cool golf wear a non-golfer could rock, did ~11 people in Brooklyn just witness the concert of the year & more
+
+
 [Don't trust people who talk about "intention"](https://www.blackbirdspyplane.com/p/dont-trust-people-who-talk-about-intention)
 ---
 
@@ -149,12 +157,4 @@ The worst-dressed famous people and rare sauce lords among them, rare cool tiny-
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/9/2026
 
 Would-be "code unlockers" deserve extreme skepticism
-
-
-[Hiking-sandal realness](https://www.blackbirdspyplane.com/p/hiking-sandal-realness)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/7/2026
-
-Plus summer-weight button ups, a packable linen suit, non-wack tabi sneakers & more on-demand recon
 
