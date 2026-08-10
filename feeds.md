@@ -1,4 +1,12 @@
 
+[Ugly genius sneakers](https://www.blackbirdspyplane.com/p/ugly-genius-sneakers)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/9/2026
+
+Plus new sunglasses, an under-the-radar comfort sneaker line, a forgotten mid-century design legend whose lamps were bangers & more
+
+
 [Quacky, honking, sublime](https://www.blackbirdspyplane.com/p/quacky-honking-sublime)
 ---
 
@@ -149,12 +157,4 @@ Shorts Report & beyond — it’s Spyplane Swelter-Weather Swag Week
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/11/2026
 
 The worst-dressed famous people and rare sauce lords among them, rare cool tiny-mic-style-advice dudes, rare shirts, and more unbeatable recon
-
-
-[Analyze this](https://www.blackbirdspyplane.com/p/analyze-this-against-color-analysis-and-other-code-unlocker-hogwash)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/9/2026
-
-Would-be "code unlockers" deserve extreme skepticism
 
