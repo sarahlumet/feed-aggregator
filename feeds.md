@@ -1,4 +1,12 @@
 
+["The center is a mystery"](https://www.blackbirdspyplane.com/p/the-center-is-a-mystery)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/11/2026
+
+Cult pottery that disappears fast, and enigmas that linger. A studio visit with a young legend
+
+
 [Ugly genius sneakers](https://www.blackbirdspyplane.com/p/ugly-genius-sneakers)
 ---
 
@@ -149,12 +157,4 @@ Cooling shirts, heatwave headgear, powerful hot-weather mindset changes and more
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/16/2026
 
 Shorts Report & beyond — it’s Spyplane Swelter-Weather Swag Week
-
-
-[A plea for justice](https://www.blackbirdspyplane.com/p/a-plea-for-justice)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/11/2026
-
-The worst-dressed famous people and rare sauce lords among them, rare cool tiny-mic-style-advice dudes, rare shirts, and more unbeatable recon
 
