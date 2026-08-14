@@ -1,4 +1,12 @@
 
+[Drop out, chune in](https://www.blackbirdspyplane.com/p/drop-out-chune-in-big-tote-bags-handmade-homes-hiking-sandal-excellence-beautiful-philly-melodies)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/13/2026
+
+Big swag totes with a DIY option, audacious handmade homes, hiking-sandal excellence, beautiful Philly melodies & more
+
+
 ["The center is a mystery"](https://www.blackbirdspyplane.com/p/the-center-is-a-mystery)
 ---
 
@@ -149,12 +157,4 @@ How I'm doing it this summer
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/18/2026
 
 Cooling shirts, heatwave headgear, powerful hot-weather mindset changes and more in the finale of our "How to Dress When it's Too Hot" Guide
-
-
-[How to dress when it's too hot](https://www.blackbirdspyplane.com/p/how-to-dress-well-when-its-too-hot)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/16/2026
-
-Shorts Report & beyond — it’s Spyplane Swelter-Weather Swag Week
 
