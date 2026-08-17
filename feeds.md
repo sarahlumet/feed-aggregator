@@ -1,4 +1,12 @@
 
+[The dream of the '90s vintage store](https://www.blackbirdspyplane.com/p/the-dream-of-the-90s-vintage-store)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/16/2026
+
+Is back. Plus Art Brut ceramics, chain-mail swag, and new fall pieces from independent designers
+
+
 [Drop out, chune in](https://www.blackbirdspyplane.com/p/drop-out-chune-in-big-tote-bags-handmade-homes-hiking-sandal-excellence-beautiful-philly-melodies)
 ---
 
@@ -149,12 +157,4 @@ Do you even want it to? Plus: the cure for too much dry cleaning, my favorite ga
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/21/2026
 
 How I'm doing it this summer
-
-
-[A/C made us soft](https://www.blackbirdspyplane.com/p/ac-made-us-soft)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/18/2026
-
-Cooling shirts, heatwave headgear, powerful hot-weather mindset changes and more in the finale of our "How to Dress When it's Too Hot" Guide
 
