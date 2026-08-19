@@ -1,4 +1,12 @@
 
+[Why hemmed jeans look horrible](https://www.blackbirdspyplane.com/p/why-hemmed-jeans-look-horrible)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/18/2026
+
+Pants epiphanies
+
+
 [The dream of the '90s vintage store](https://www.blackbirdspyplane.com/p/the-dream-of-the-90s-vintage-store)
 ---
 
@@ -149,12 +157,4 @@ Plus French sneakers nobody's checking for, handwoven kitchen textiles, other vi
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/23/2026
 
 Do you even want it to? Plus: the cure for too much dry cleaning, my favorite garment as determined by science & more rare wisdom
-
-
-[Wearing color is a community service](https://www.blackbirdspyplane.com/p/wearing-color-is-a-community-service)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/21/2026
-
-How I'm doing it this summer
 
