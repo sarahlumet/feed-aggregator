@@ -1,4 +1,12 @@
 
+[Your private shame becomes public](https://www.blackbirdspyplane.com/p/your-private-shame-is-public)
+---
+
+Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 8/20/2026
+
+Plus spicy footwear, new natty-dye shirts, a studio visit with a very sick sculptor, chill floating Chinese rappers and more
+
+
 [Why hemmed jeans look horrible](https://www.blackbirdspyplane.com/p/why-hemmed-jeans-look-horrible)
 ---
 
@@ -149,12 +157,4 @@ Too much heat, on the cool-clothes frontlines and elsewhere. Spyplane Paris Men'
 Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/25/2026
 
 Plus French sneakers nobody's checking for, handwoven kitchen textiles, other vibey home goods & more
-
-
-[Does everything in your wardrobe work together?](https://www.blackbirdspyplane.com/p/does-everything-in-your-wardrobe)
----
-
-Blackbird Spyplane | Unbeatable Recon | Style•Culture•Travel --- 6/23/2026
-
-Do you even want it to? Plus: the cure for too much dry cleaning, my favorite garment as determined by science & more rare wisdom
 
